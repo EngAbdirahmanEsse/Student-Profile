@@ -12,3 +12,4 @@ Eng Abdirahman Esse
 - Become a professional engineer
 - Improve coding skills
 - Build real-world projects
+waxaan ku daray intaas oo ah update cusub
